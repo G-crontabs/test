@@ -1,2 +1,0 @@
-gegejia.com
-password
